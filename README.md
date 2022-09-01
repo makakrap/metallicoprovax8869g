@@ -1,1 +1,0 @@
-# metallicoprovax8869g
